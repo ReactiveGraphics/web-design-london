@@ -1,6 +1,6 @@
 # London WordPress Agency  
 
-Looking for expert WordPress development in London? Check out [Web Design London](https://www.web-designlondon.co.uk/london-wordpress-agency/) – a leading agency specializsing in custom WordPress design, development, and SEO.  
+Looking for expert WordPress development in London? Check out [London Wordpress Agency](https://www.web-designlondon.co.uk/london-wordpress-agency/) – a leading agency specializsing in custom WordPress design, development, and SEO.  
 
 🚀 **Why Choose Them?**  
 - Custom WordPress solutions tailored to your business  
